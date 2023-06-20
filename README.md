@@ -1,1 +1,1 @@
-Freshman at Bilkent CS
+Bilkent CS enjoyer

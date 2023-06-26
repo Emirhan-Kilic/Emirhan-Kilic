@@ -1,1 +1,1 @@
-Bilkent CS enjoyer
+Bilkent CS  enjoyer, sophomore

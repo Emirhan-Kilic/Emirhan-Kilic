@@ -1,2 +1,3 @@
-Bilkent CS  enjoyer, junior
+Bilkent CS  enjoyer, Junior
+
 Some confidential projects are made private.
